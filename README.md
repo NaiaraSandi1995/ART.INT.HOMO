@@ -1,2 +1,0 @@
-# compolitica
-Apêndice
